@@ -20,6 +20,6 @@ Cards so far
 
 ![image](https://user-images.githubusercontent.com/68404350/148460282-60a2cf75-4182-4e42-adc5-bcb040d75dd4.png)
 
-this will be tweaked soon ![image](https://user-images.githubusercontent.com/68404350/148460296-7c272623-969f-47b5-bbc3-a6eb8cfa61a7.png) this will be tweaked soon
+this will be tweaked soon ![image](https://user-images.githubusercontent.com/68404350/148460296-7c272623-969f-47b5-bbc3-a6eb8cfa61a7.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148460329-1a7af686-03e7-42c3-b871-e8a92ccf2baa.png)
