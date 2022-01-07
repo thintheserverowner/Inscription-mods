@@ -23,3 +23,25 @@ Cards so far
 this will be tweaked soon ![image](https://user-images.githubusercontent.com/68404350/148460296-7c272623-969f-47b5-bbc3-a6eb8cfa61a7.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148460329-1a7af686-03e7-42c3-b871-e8a92ccf2baa.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148616934-1a001038-e4de-4f6f-8b75-6b98f449c5f6.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148616961-69a920bf-a580-490a-bb82-945b721deb1c.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148616990-13fed94e-c7aa-4e37-9a93-976e5b053d01.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617022-e83d35d6-9130-4dd3-a92b-6c33b498e26a.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617060-29ccd7e5-1e20-4d97-9b9f-a7d02ccf014e.png) This is for sidedecks Only So you must have your sidedeck mod allowing modded sidedecks!
+![image](https://user-images.githubusercontent.com/68404350/148617135-4eba770e-9fff-4ed6-9e22-0e7102f2c3a3.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617160-ad451747-aaf6-43f6-95c4-2910867103b1.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617187-3dc15ca4-a304-4a28-a354-65431f3ff93a.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617245-26079c3d-f6a6-4a63-a832-8fef7ba61fe4.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617271-efa25c30-c252-46d3-a1b6-a1adc026b05d.png)
+
+![image](https://user-images.githubusercontent.com/68404350/148617311-b18ebc1a-77e9-4a0b-8c50-027e1a2e0c29.png)
+
