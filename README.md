@@ -1,5 +1,13 @@
 # Inscription-mods
 
+Credits to the artists
+
+Mealworm art CHEESE#5715
+
+Slender Destroyer Art Cevin2006 (◕‿◕)#7971
+
+The rest of it was either me or redthatcat
+
 Cards so far
 
 ![image](https://user-images.githubusercontent.com/68404350/148460081-c0e99007-4116-47fa-8199-07ff2e95139e.png)
