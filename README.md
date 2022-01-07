@@ -33,13 +33,12 @@ this will be tweaked soon ![image](https://user-images.githubusercontent.com/684
 ![image](https://user-images.githubusercontent.com/68404350/148617022-e83d35d6-9130-4dd3-a92b-6c33b498e26a.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148617060-29ccd7e5-1e20-4d97-9b9f-a7d02ccf014e.png) This is for sidedecks Only So you must have your sidedeck mod allowing modded sidedecks!
+
 ![image](https://user-images.githubusercontent.com/68404350/148617135-4eba770e-9fff-4ed6-9e22-0e7102f2c3a3.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148617160-ad451747-aaf6-43f6-95c4-2910867103b1.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148617187-3dc15ca4-a304-4a28-a354-65431f3ff93a.png)
-
-![image](https://user-images.githubusercontent.com/68404350/148617245-26079c3d-f6a6-4a63-a832-8fef7ba61fe4.png)
 
 ![image](https://user-images.githubusercontent.com/68404350/148617271-efa25c30-c252-46d3-a1b6-a1adc026b05d.png)
 
